@@ -1,0 +1,11 @@
+
+[radiaciones ven181015.pdf](https://github.com/user-attachments/files/25344710/radiaciones.ven181015.pdf)
+[GACETA OFICIAL  38508 DE FECHA 04-11-2004 RESOLUCION 508.pdf](https://github.com/user-attachments/files/25344708/GACETA.OFICIAL.38508.DE.FECHA.04-11-2004.RESOLUCION.508.pdf)
+[2256-2001_Proteccion_radiologica._Definiciones.pdf](https://github.com/user-attachments/files/25344707/2256-2001_Proteccion_radiologica._Definiciones.pdf)
+[2014_enero_g.o_40.332.pdf](https://github.com/user-attachments/files/25344706/2014_enero_g.o_40.332.pdf)
+[resolucion-contentiva-de-los-atributos-de-las-habilitaciones-administrativas.pdf](https://github.com/user-attachments/files/25344704/resolucion-contentiva-de-los-atributos-de-las-habilitaciones-administrativas.pdf)
+[RESOLUCION DE ATRIBUTOS 2020.pdf](https://github.com/user-attachments/files/25344703/RESOLUCION.DE.ATRIBUTOS.2020.pdf)
+[resolución 508 20251222 argentina.pdf](https://github.com/user-attachments/files/25344702/resolucion.508.20251222.argentina.pdf)
+[Resolucion 019 SAREN. Documentación Registros y Notarías.pdf](https://github.com/user-attachments/files/25344701/Resolucion.019.SAREN.Documentacion.Registros.y.Notarias.pdf)
+[Res 93 cronograma de transformacion de titulosGO 37342.pdf](https://github.com/user-attachments/files/25344700/Res.93.cronograma.de.transformacion.de.titulosGO.37342.pdf)
+[reconversion.pdf](https://github.com/user-attachments/files/25344699/reconversion.pdf)
