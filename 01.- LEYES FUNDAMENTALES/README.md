@@ -1,4 +1,5 @@
-Constitución Nacional
-Ley Orgánica de Telecomunicaciones
-Ley del Plan de la Patria (1° y 2°), incumplidos a mi parecer
-Ley Orgánica de Geografía y Cartografía Nacional
+▪ Constitución de la República Bolivariana de Venezuela
+▪ Ley Orgánica del Plan de la Patria de las 7 Grandes Transformaciones 2025 – 2031
+▪ Ley-Orgánica-de-Telecomunicaciones-LOTEL
+▪ Ley-de-Responsabilidad-Social-en-Radio-Televisión-y-Medios-Electrónicos
+
